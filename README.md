@@ -1,6 +1,6 @@
 ### palmeiras mancha verde 💚🤍
 
-melhor do mundo 
+melhor do mundo desde 1914
 
 primeiro campeão mundial 1951, chupa gambá
 
